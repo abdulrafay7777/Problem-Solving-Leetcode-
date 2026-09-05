@@ -1,1 +1,1 @@
-Just trying to train my Prefrontal Cortex
+Just Trying To Train My Prefrontal Cortex
